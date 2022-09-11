@@ -19,6 +19,7 @@ I am currently undecided but I am exploring many options and im exctied to learn
 I hold the Guiness World Record for highest blood sugar survived!
 
 ![IMG_6789](https://user-images.githubusercontent.com/113312837/189553307-f9d83b7d-c94a-40a9-98bc-15917cdd148d.jpg)
+## Fun Facts!
 
 - 🌱 I’m currently learning how to use github and become well versed in the world of computer science
 - 💬 Ask me about Michaels Miracles or my world record!
