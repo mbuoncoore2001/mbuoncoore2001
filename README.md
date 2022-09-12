@@ -22,6 +22,6 @@ I hold the Guiness World Record for highest blood sugar survived!
 ## Fun Facts!
 
 - 🌱 I’m currently learning how to use github and become well versed in the world of computer science
-- 💬 Ask me about Michaels Miracles or my world record!
+- 💬 Ask me about Michael's Miracles or my world record!
 - 📫 How to reach me: mbuonocore2001@gmail.com
 - 😄 Pronouns: He/Him
